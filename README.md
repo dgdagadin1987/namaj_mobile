@@ -1,0 +1,1 @@
+# namaj_mobile
